@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tejbekaaa
-- 👀 I have discord :]/ Tejbekaaa#0740
+- 👀 I have discord (☞ﾟヮﾟ)☞ Tejbekaaa#0740
 - 🌱 I’m currently learning html/php/css
 - 🥵 I from poland! Pierogi is my favorite food!
 - 📫 Contact: E-Mail: tejbekaaa@outlook.com
